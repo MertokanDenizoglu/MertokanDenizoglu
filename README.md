@@ -1,5 +1,4 @@
-# 💫 About Me:
-🔭 I’m currently working on BUFİ<br>
+
 
 
 ## 🌐 Socials:
